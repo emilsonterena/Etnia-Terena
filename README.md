@@ -1,0 +1,2 @@
+# Etnia-Terena
+Lingua Terena
